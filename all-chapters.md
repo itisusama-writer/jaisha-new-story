@@ -871,3 +871,374 @@ Jaisha wiped her eyes, her throat tight with fear. She could hear her heart poun
 
 But even as she opened her mouth to speak, she couldn’t shake the feeling that the worst was yet to come.
 
+The air in the room was so thick with tension that Jaisha could barely breathe. Her vision blurred, the room spinning around her as the weight of her sister's anger and her mother's confusion pressed in from all sides. Her heart pounded in her chest, each beat echoing like a drum in her ears. The words she needed to say were stuck in her throat, tangled in a web of fear and desperation.
+
+Ammi's voice, soft yet commanding, broke the heavy silence. "Jaisha... talk to us. No more hiding. We can fix this, but we need to know the truth."
+
+Jaisha's lips parted to respond, but the world around her tilted violently. The tension, the accusations, the constant fear of Abubakar's messages—it all swirled together into a suffocating storm. Her breath caught in her throat, and before she could register what was happening, the edges of her vision darkened.
+
+Her knees buckled.
+
+"Jaisha!" Ammi's panicked voice was the last thing she heard before everything went black.
+
+When Jaisha woke up, she was lying on the couch in the living room. A soft breeze floated in through the open window, carrying the familiar scent of jasmine that usually calmed her, but now only reminded her of the storm she had left behind upstairs. She blinked, trying to shake off the fog clouding her mind.
+
+"You're awake," Ammi said gently, sitting beside her. Tabeenah stood in the doorway, her arms crossed tightly over her chest, her face still a mask of anger and hurt.
+
+Jaisha sat up slowly, feeling the weight of the situation settle back on her shoulders. She could see the worry etched into Ammi's face, the tension in the room still palpable, though muted now by concern.
+
+"You fainted," Ammi said, brushing a strand of hair away from Jaisha's face. "We were worried."
+
+"I... I'm sorry," Jaisha whispered, her throat dry. She looked down at her hands, unable to meet either of their eyes. How could she explain what she didn't even fully understand herself?
+
+Ammi reached out and took Jaisha's hand in hers. "Beta, whatever is happening, we will get through it. But you need to tell us everything. Who is this Abubakar? Why is he sending these messages?"
+
+Jaisha felt a lump form in her throat as she thought about the messages, about how far things had spiraled out of control. She had tried so hard to handle it on her own, to protect her family from the mess Abubakar had created, but now it had bled into their lives. She had no choice but to be honest.
+
+With a deep breath, Jaisha finally began to speak.
+
+"I don't know who Abubakar is," she started, her voice shaky but growing stronger with each word. "At first, I thought it was just a misunderstanding. He sent me a message one day, and I ignored it, thinking it was someone playing a prank. But then the messages kept coming... and they got worse."
+
+She paused, glancing briefly at Tabeenah, who remained silent but was clearly listening.
+
+"At first, I thought it had something to do with Arham," Jaisha continued, her heart aching as she spoke his name. "But then Abubakar started threatening me, saying he'd talk to Tabeenah, that he'd tell you lies about me. I didn't want you to get dragged into this, so I tried to deal with it on my own."
+
+Tabeenah's expression softened slightly, but she didn't say anything.
+
+"I never led him on," Jaisha said, her voice pleading. "I don't even know how he found out about Arham. All I know is that he's been trying to ruin everything, and I was scared... so scared that if I said something, it would only make things worse."
+
+Ammi let out a long breath, her hand tightening around Jaisha's. "Beta, you should have told us sooner. We could have helped you."
+
+"I know," Jaisha whispered, tears filling her eyes. "But I thought I could fix it. I thought if I stayed quiet, it would go away."
+
+Tabeenah uncrossed her arms, her face a mix of confusion and regret. "Why didn't you trust me, Jaisha? I would have helped you... I thought we were closer than this."
+
+"I didn't want you to hate me," Jaisha admitted, her voice cracking. "I knew how much you looked up to me, and I didn't want to disappoint you."
+
+Tabeenah’s anger seemed to wane, replaced by a deep sadness. She sighed, rubbing her forehead as if trying to erase the hurt. "I don’t hate you," she said quietly. "But this... this whole thing... it’s too much, Jaisha. I don't understand why you'd hide something so serious from me."
+
+Jaisha wiped her eyes. "I didn’t want to make things worse between us. I thought if I kept it quiet, I could protect you from all of this. I’m sorry, Tabeenah. I’m so sorry."
+
+There was a long pause, the room filled only with the sound of the wind rustling the curtains. Then, finally, Tabeenah walked over and sat beside Jaisha on the couch. She didn’t say anything, but the simple act of sitting there was enough. Jaisha knew that, at least for now, her sister was trying to understand.
+
+"We’ll figure this out," Ammi said, her voice firm but gentle. "But no more secrets, Jaisha. If something like this ever happens again, you come to us. Do you understand?"
+
+Jaisha nodded, her heart heavy but lighter than it had been in days. For the first time, she felt like she wasn’t carrying the burden alone.
+
+As they sat there in the quiet of their home, Jaisha’s phone buzzed again. Her body tensed, fear spiking through her like lightning. She looked at the phone in her lap, not wanting to pick it up but knowing she had to.
+
+She glanced at Ammi and Tabeenah, both watching her closely.
+
+With shaking hands, she unlocked the phone and opened the message.
+
+“You think telling your family will protect you? Think again. This is just the beginning.”
+
+Jaisha’s blood ran cold, but this time, she wasn’t alone. She handed the phone to Ammi, her fingers trembling.
+
+Ammi looked at the message, her face hardening with determination. "This ends now," she said, her voice filled with a quiet strength that made Jaisha feel, for the first time in a long while, that things might actually be okay.
+
+Tabeenah placed a hand on Jaisha’s shoulder, her touch reassuring. "We’ll handle this together," she said, her voice soft but sincere.
+
+For the first time in days, Jaisha felt a small flicker of hope. It wasn’t over, not by a long shot—but at least now, she wasn’t fighting this battle alone.
+
+The next morning was quiet. The usual hustle and bustle of the house seemed dulled as if the tension from the day before had pressed a weight upon everything. Jaisha had barely slept. Her mind raced with thoughts of the messages, of Abubakar’s threats, and the dread that lingered in the air between her and Tabeenah. Though they had spoken, a part of her still felt unsettled, fragile, like the calm before a storm.
+
+As she sat at the kitchen table, absently stirring her tea, the sound of the doorbell jolted her from her thoughts. Her heart leaped into her throat. Could it be another message, another escalation from Abubakar? Was he now sending things to her home?
+
+Ammi appeared in the hallway, wiping her hands on a dish towel as she went to answer the door. Jaisha’s palms grew sweaty, her stomach twisting into knots. She stood up slowly, inching closer to the doorway as if preparing herself for whatever nightmare awaited her on the other side.
+
+But when the door opened, it was just the postman standing there, holding a large bouquet of flowers and a small, carefully wrapped package. His cheerful demeanor seemed to clash against the oppressive atmosphere that had settled over the house.
+
+“For Mrs. Jaisha,” the postman announced with a smile, glancing down at his clipboard before handing over the delivery.
+
+Ammi’s eyebrows raised in surprise. “Jaisha, there’s something for you.”
+
+Jaisha’s pulse quickened. She hesitated, her eyes fixated on the bouquet as though it might explode at any moment. Her breath hitched as she stepped forward, taking the flowers from her mother’s hands. The vibrant colors and sweet scent of the roses did little to calm her nerves.
+
+"Who would send me flowers?" she thought, fear tightening in her chest. Her mind immediately went to the worst possibility—Abubakar. Was this another twisted game of his?
+
+With trembling hands, Jaisha searched for a card. She found it nestled among the blooms, a small white envelope. Her heart pounded as she opened it, half-expecting some cryptic message designed to unnerve her.
+
+But the words inside weren’t from Abubakar.
+
+They were from her husband.
+
+“A flower for my sweet wife,” the note read in his familiar handwriting. “And a painting from your teacher Arham, specially painted for you. I know things must be difficult right now, but remember, I’m always with you, no matter how far I am. Things will get better soon. Love, your husband.”
+
+A wave of relief washed over her so intensely that her legs nearly buckled. She let out a breath she hadn’t realized she’d been holding. It wasn’t from Abubakar. It wasn’t a threat. It was love, pure and simple, from the one person who always knew how to make her feel safe, even from across oceans.
+
+Jaisha opened the small, carefully wrapped package. Inside was a painting—Arham’s painting. Her breath caught as she held it in her hands, gazing at the image. It was a scene she recognized: the very tree where they had spent countless hours sketching together. But the painting wasn’t just a replica of that place; it had layers, depth, and hidden meaning.
+
+The branches of the tree twisted slightly as if bending under some unseen force, but they didn’t break. Instead, they reached toward the light, a faint, warm glow in the background. The sky above was a gradient of dusk, caught between night and day, symbolizing uncertainty. But the light was there, guiding the way forward.
+
+Arham had always been a master of subtlety, of painting emotions rather than just scenes. This painting told a story—a story of hope, of resilience in the face of struggle. It was as if Arham was trying to tell her that no matter how hard things seemed, they would get better. The storm would pass, and the light would remain.
+
+Tears pricked Jaisha’s eyes. The timing of the gift, and the thoughtfulness of both her husband and Arham, was more than she could handle in that moment. Her heart ached with the weight of it all—the chaos of the past few days, the guilt, the fear, and now, this gentle reminder that she wasn’t alone.
+
+Ammi, who had been watching Jaisha’s reaction carefully, stepped forward. “Jaisha, what is it?” she asked softly, sensing the shift in her daughter’s mood.
+
+Jaisha smiled weakly, brushing a tear from her cheek. “It’s from my husband… and Arham.” She showed her the card and the painting. “He sent these to remind me that things will get better.”
+
+Ammi’s eyes softened as she looked at the painting. “It’s beautiful. You’re lucky to have people in your life who care so much for you, Jaisha. Your husband… and Arham.” She said Arham’s name with the same understanding Jaisha had always felt from her mother—gentle, without judgment.
+
+But Jaisha couldn’t ignore the tightness in her chest. The painting was a gift of hope, yet the looming presence of Abubakar cast a shadow over it. What if this was just the calm before the next wave of chaos? She glanced back at the bouquet, then at her phone, half-expecting another message to pop up and ruin the moment.
+
+Instead, she allowed herself a moment of peace. A brief reprieve from the storm. She could worry later, and could plan her next steps when the time came. For now, she needed this reminder. This assurance that no matter how hard things seemed, there was still beauty in the world, still light in the darkness.
+
+“Things will get better,” she whispered to herself, repeating the words like a mantra as she held the painting close.
+
+But deep down, as she placed the gift on her desk, she knew the fight wasn’t over. Not yet.
+
+And somewhere, in the back of her mind, a lingering fear remained: Abubakar wasn’t done with her. Not by a long shot.
+
+But for now, she would hold on to the promise of the painting, to the love from across the seas, and to the hope that she could withstand whatever came next.
+
+The bus ride back to the hostel felt longer than usual. The sky outside had turned a deep indigo, stars beginning to twinkle faintly in the distance. Jaisha stared out of the window, watching the passing trees and the flickering streetlights, her thoughts far away.
+
+Tabeenah sat beside her, silent as ever, her body stiff and cold with unspoken tension. The air between them was thick and heavy with unresolved emotions and fractured trust. Their mother had sensed something was wrong before they left home, but she hadn’t pressed. Instead, she had given them both quiet, watchful glances, letting them leave without forcing a confrontation.
+
+Jaisha felt the weight of those glances even now, as the bus rumbled forward into the night. Her mother’s kindness had made her feel worse, knowing that more secrets were being buried under her own silence.
+
+Tabeenah hadn’t spoken to her since the day of the slap. Though they had exchanged small, necessary words in front of Ammi—polite, cold—nothing had been resolved. The wound was still fresh, raw beneath the surface. And the constant messages from the private number were like salt rubbing into it.
+
+Jaisha shifted uncomfortably in her seat, her mind still spinning from the bouquet and the painting. The gift from her husband had given her a moment of solace, a fragile moment of peace in the storm. But now, sitting in the darkened bus, the unease had returned.
+
+Abubakar was still out there.
+
+Her phone had stayed silent since they’d left home, but she knew it was only a matter of time. Whoever this person was, they weren’t going to let her be. And now, the stakes felt higher. If Tabeenah had already snapped once, what would have happened if Abubakar dragged them even further into his twisted game? The mere thought of what he could do made her chest tighten with fear.
+
+As the bus slowed, pulling into the familiar campus, the tension between the sisters seemed to thicken. The hostel’s silhouette loomed ahead, dark and quiet under the night sky. Tabeenah shifted in her seat, her hands gripping the straps of her bag tightly as if she, too, were bracing for something she wasn’t ready to face.
+
+Without a word, they gathered their things and stepped off the bus. The cool night air wrapped around them, but instead of feeling refreshing, it felt suffocating to Jaisha. The hostel building, usually a place of routine and predictability, now felt like a cage—an isolated island where her troubles were about to deepen.
+
+They walked through the gates, their footsteps echoing in the stillness. Tabeenah remained a few paces ahead, never looking back at Jaisha. The quiet between them spoke louder than any words ever could. It was a silence born not just of anger but of distrust, and Jaisha could feel it growing larger with each step they took.
+
+When they reached their room, Tabeenah tossed her bag onto her bed without so much as a glance in Jaisha’s direction. Her movements were stiff, and controlled, as though she was holding something back. Without a word, she pulled out her phone and sat on the edge of her bed, her back turned to Jaisha.
+
+Jaisha, exhausted and emotionally drained, sat on her own bed, staring at the wall in front of her. The coolness of the hostel room offered no comfort. It was late, but sleep felt impossible. The weight of everything that had happened clung to her like a shadow that wouldn’t let go.
+
+She reached for her phone, hesitating for a moment. The screen was blank. No messages. No threats. Not yet, at least. But she knew it was only a matter of time before the private number would strike again. The thought made her stomach churn with anxiety.
+
+Jaisha had been running from this long enough. She couldn’t keep hiding, couldn’t keep letting fear control her. The painting from Arham, the words of reassurance from her husband—they had reminded her of her strength, of the fight that still burned within her. And she knew now that the only way to truly stop this nightmare was to confront it head-on.
+
+Abubakar had made her life miserable, tearing apart the fragile bonds she had tried so hard to protect. But he had also made one critical mistake: he had underestimated her. She wasn’t just a victim in this game. She wasn’t going to let him hold all the power anymore.
+
+Jaisha clenched her fists, feeling the fire in her chest burn brighter. She would find Abubakar. She would confront him, face whatever twisted lies he had been feeding, and put an end to this once and for all.
+
+It wouldn’t be easy. She knew that. There were still so many unknowns—who was he? How did he know so much about her? Why had he chosen to target her of all people? But these questions only fueled her determination. She would get answers.
+
+One way or another.
+
+Jaisha took a deep breath and glanced toward Tabeenah, whose back was still turned, the silence between them like a yawning chasm. She couldn’t fix everything with her sister yet. But she could at least take control of this one part of her life.
+
+As the night stretched on and the hostel settled into a quiet slumber, Jaisha made a vow to herself.
+
+This time, she wouldn’t run.
+
+She would find Abubakar.
+
+And she would make sure he never threatened her—or her family—again.
+
+Jaisha sat in the middle of the lecture hall, her notebook open but untouched. The professor’s voice droned on, echoing in the vast room filled with students, but none of it registered in her mind. Her thoughts were elsewhere, as they had been for days now, preoccupied with the constant messages from the private number.
+
+She had tried to focus on her psychology notes, scribbling down half-hearted sentences, but every word seemed to blur into nothing. The weight of the threat, the tension with Tabeenah, and the fear of what could happen next—it all felt like a ticking time bomb.
+
+The room was quiet, save for the professor’s voice and the soft scratching of pens and pencils on paper. Jaisha’s phone, tucked away in her bag, buzzed quietly. The subtle vibration sent a jolt through her, her heart immediately racing. She didn’t even need to check it to know.
+
+It was him. Abubakar.
+
+Her fingers trembled as she reached for her phone, pulling it out and unlocking the screen. The message appeared instantly, staring back at her like a silent taunt.
+
+“I’m watching you, Jaisha. You look so distracted today. What’s on your mind?”
+
+Her breath hitched, and her eyes darted around the room. Someone was watching her—right now. She knew it. Her skin prickled with unease as she scanned the faces of her classmates, trying to spot anyone suspicious. The lecture hall was full, but everyone seemed engrossed in their work, heads down, writing notes, or listening to the professor. Nothing stood out.
+
+Her heart raced as the realization hit her. Abubakar was here, in this room. But how could that be? There was no one named Abubakar in her class, she was sure of it. She had gone over the names in her head so many times before, but the answer never came. Was he hiding behind a different name? Could someone she knew be using an alias?
+
+Her palms grew sweaty, and she struggled to keep her composure, feeling like the walls were closing in on her. Was it someone she had trusted all along? Was Abubakar someone she spoke to every day?
+
+Another message buzzed in as if to hammer in the point.
+
+“Don’t worry, you’ll find out soon enough. But it’s more fun this way, isn’t it?”
+
+Jaisha’s throat tightened. She wanted to scream, to call out to everyone in the room, demand who was doing this. Instead, she shoved her phone back into her bag and stared straight ahead, trying to calm the storm inside her.
+
+The rest of the lecture passed in a haze. She didn’t take a single note, barely hearing a word of what the professor said. Her mind was too busy running through every possibility, every person who could be behind this.
+
+By the time class ended, Jaisha felt like she could barely breathe. She walked quickly out of the lecture hall, trying to avoid eye contact with anyone. Someone from her class was Abubakar. But who?
+
+Later that night, back in the hostel, the weight of everything crashed down on her. She sat on her bed, staring at the ceiling, the phone still burning in her pocket. Every message from the private number was like a punch to her gut. How could someone in her class be tormenting her like this? How could someone she shared space with every day be behind this nightmare?
+
+Suddenly, an idea sparked in her mind. Sara.
+
+Sara had always been her closest friend, someone she could trust when things went wrong. And Jaisha remembered something Sara had mentioned months ago, something she hadn’t thought about in the chaos of everything happening.
+
+Sara’s older sister was a tech wizard. A hacker, really. She worked in cybersecurity and had a way of breaking into phones and networks in ways Jaisha barely understood. If anyone could help her track down Abubakar’s real identity, it was her.
+
+With a new surge of determination, Jaisha grabbed her phone and texted Sara.
+
+“Can we talk? I need your help.”
+
+A few minutes later, Sara knocked on the door and stepped inside, concern etched on her face. Jaisha explained everything, from the messages she had been receiving to her suspicions about someone in their class being Abubakar. She felt a wave of relief as Sara listened without judgment, her expression shifting from worry to grim understanding.
+
+Sara thought for a moment before nodding slowly. “You’re right. If this person is in our class, we can find out. My sister has a way of getting into phone systems, retrieving messages—even if they’re from private numbers.”
+
+Jaisha’s heart leapt. “So, she can help?”
+
+“I’ll ask her tonight,” Sara said, her tone serious. “She doesn’t normally do this kind of thing, but for you? She’ll do it. We’ll compare everyone’s phone data with the messages you’ve been getting. If Abubakar is someone we know, we’ll catch him.”
+
+Jaisha felt a flicker of hope for the first time in days. “Thank you, Sara. I don’t know what I’d do without you.”
+
+Sara gave her a reassuring smile. “We’ll figure this out. No one’s going to keep messing with you.”
+
+Later that night, Sara texted her again.
+
+“She agreed.”
+
+Jaisha stared at her phone, her pulse racing. They were finally getting somewhere. This was her chance to unmask Abubakar once and for all.
+
+But as she lay in bed, her mind buzzing with a mix of fear and anticipation, she couldn’t shake the feeling that things were about to get even more dangerous.
+
+Whoever Abubakar was, he wouldn’t go down without a fight.
+
+And Jaisha had no idea just how deep this twisted game was about to go.
+
+The anticipation was unbearable. Jaisha sat in her room, her phone clutched tightly in her hands. Sara had just left after spending hours with her, walking through every detail of how her sister would pull off this feat. Jaisha couldn’t stop her heart from racing—this was it. After all the terror, the sleepless nights, and the suffocating fear, she was finally about to find out who Abubakar really was.
+
+The plan had been simple: Sara’s sister would gain access to the phone networks and retrieve the data from the private number, identifying it by matching the incoming messages to the encrypted phone records. It was risky and dangerous, but Jaisha was desperate. Sara had reassured her that her sister knew what she was doing, and now Jaisha just had to wait.
+
+Hours passed, each one feeling like an eternity. Every time her phone buzzed with a notification, her heart leapt, expecting the answer.
+
+Then, finally, Sara texted.
+
+“Got it. Sending you the details now.”
+
+Jaisha’s hands shook as she opened the message, her eyes scanning the screen for the number she had been haunted by for weeks.
+
++92* *****.
+
+For a moment, the number didn’t register. It was just a string of digits, nothing more. But then the memory hit her like a tidal wave. She had seen that number before—on a class group chat, on shared projects, on casual WhatsApp conversations. The pieces started to click together in her mind.
+
+This wasn’t Abubakar’s number at all. It was someone else entirely.
+
+Qasim.
+
+Jaisha’s breath caught in her throat, and she dropped her phone, her mind spinning. Qasim—the quiet guy from her class. He wasn’t someone she interacted with much, but she remembered him. He always sat near the back of the lecture hall, usually keeping to himself, though sometimes he would glance at her when he thought no one was looking.
+
+Her mind raced back to their brief encounters. They had shared a few assignments and discussions over the semester, but nothing out of the ordinary. He had always seemed... normal. A little reserved, but harmless.
+
+But the more she thought about it, the more things began to click into place. He was always around—sitting quietly in the background. Observing. Listening. He had never seemed threatening, but there had always been something off. Something she couldn’t quite put her finger on before.
+
+Jaisha’s chest tightened with dread as the truth settled in. Qasim was Abubakar.
+
+But why?
+
+The question gnawed at her, twisting her stomach into knots. Why would Qasim go to such lengths to terrorize her? What did he want? And more importantly, why had he used the name Abubakar?
+
+Her phone buzzed again. It was Sara.
+
+“You okay?”
+
+Jaisha didn’t know how to respond. She felt like the ground had been pulled out from under her, like she had been living in a false reality. She typed a quick reply, her fingers trembling.
+
+“It’s Qasim. I... I don’t understand.”
+
+Sara replied almost immediately.
+
+“Qasim? Are you sure? I thought he was just... you know, a regular guy.”
+
+Jaisha closed her eyes, trying to steady her breathing. Nothing about this made sense. Qasim had always blended into the background—someone you didn’t really notice unless you were looking for him. But now, knowing he was behind the messages, every look he had given her, every small interaction they had shared, took on a new, sinister meaning.
+
+Why me?
+
+The thought echoed in her mind over and over. She needed answers.
+
+But as the pieces began to fit together, Jaisha felt a rising sense of dread. What if Qasim had been watching her all along? What if everything—the messages, the threats, the lies about Abubakar—was all part of some twisted game he had been playing?
+
+She had to confront him. She couldn’t live in fear any longer.
+
+Jaisha stared at her phone, the weight of everything pressing down on her. Qasim had been in her class the entire time, hiding in plain sight. The realization hit her hard—he had been manipulating her, controlling her from the shadows, all while pretending to be someone else. He had made her believe that some mysterious person named Abubakar was after her, but all along, it had been him.
+
+The rage and fear swirled in her chest. She couldn’t sit here and let him continue playing with her life. But how could she approach him without making things worse? She needed a plan. She needed to be smart about this.
+
+Jaisha stood up from her bed and paced the room, trying to calm herself. She needed to think clearly. She couldn’t let her emotions take over now. If she was going to confront Qasim, she had to be ready. She had to be strong.
+
+Her phone buzzed again, pulling her out of her thoughts.
+
+It was another message from Sara.
+
+“My sister says we can get more info if we need it. We can find out where the messages were sent from and even when. Let me know if you want to take this further.”
+
+Jaisha’s mind raced. More information? She wasn’t sure how much more she could handle. But then again, maybe the key to confronting Qasim lay in the details. She needed every bit of leverage she could get.
+
+Her fingers hovered over the keyboard, her decision still hanging in the balance.
+
+And then, suddenly, the door to her room creaked open. Jaisha looked up to see Tabeenah standing there, her face pale but determined.
+
+“We need to talk,” Tabeenah said quietly, stepping into the room.
+
+Jaisha’s heart skipped a beat. She nodded, bracing herself for what was to come. But even as she prepared to tell her sister everything, she couldn’t shake the growing fear gnawing at the edges of her mind.
+
+What if Qasim was watching them right now?
+
+Jaisha sat on the edge of her bed, her pulse quickening as Tabeenah stood in the doorway, her expression unreadable. The tension between them had been unbearable for days, and now it felt like everything was teetering on the edge of something huge. Jaisha knew she had to clear the air before anything else—before the situation spiraled even further out of control.
+
+Tabeenah’s eyes scanned the room before they landed on Jaisha’s face. For a moment, neither of them spoke. The weight of the unspoken words between them was suffocating.
+
+Finally, Jaisha broke the silence. “Tabeenah... we need to talk. I need to explain everything.”
+
+Tabeenah’s lips tightened, and she crossed her arms, clearly still guarded. “Explain what, Jaisha? Explain why you lied to me. Why do you drag me into this whole mess without telling me the truth?”
+
+The frustration in her voice stung, but Jaisha could also hear the hurt buried underneath it. She knew this conversation was long overdue, and if she didn’t handle it right now, she might lose her sister for good.
+
+“Tabeenah, I didn’t lie to you. I swear,” Jaisha began, her voice trembling. “There’s so much that I’ve been trying to figure out myself. This person—this Abubakar—he isn’t who we thought he was.”
+
+Tabeenah raised an eyebrow, her gaze narrowing. “What do you mean?”
+
+Jaisha took a deep breath, steadying herself. She couldn’t rush this. “The messages I’ve been getting… they weren’t from Abubakar at all. I thought it was someone I didn’t know, but today—today I found out who’s really behind all of it.”
+
+Tabeenah’s brow furrowed, the anger beginning to give way to confusion. “What are you talking about? Who?”
+
+“It’s Qasim,” Jaisha said, her voice barely above a whisper. “You know, the guy from my class. He’s the one who’s been pretending to be Abubakar. He’s been sending me all these messages, threatening me, manipulating everything.”
+
+Tabeenah blinked in disbelief. “Qasim? That quiet guy from your class? Are you sure?”
+
+“I’m positive,” Jaisha nodded, swallowing the lump in her throat. “Sara’s sister helped me figure it out. She traced the messages back to his phone number. The name Abubakar is just something he used to scare me. To make me think it was someone else.”
+
+For a moment, Tabeenah just stared at her, processing the information. The anger in her expression softened, replaced with something closer to shock and concern.
+
+Jaisha continued, her voice steady but filled with emotion. “I didn’t know what was happening, Tabeenah. At first, I thought maybe I was just overthinking everything, but then things got worse. He started sending these messages, and I didn’t know who to trust. I didn’t want to involve you until I could figure out who was behind it. I didn’t mean to hide it from you. I was just... scared.”
+
+Tabeenah’s arms slowly uncrossed, and she sat down on the edge of the bed next to Jaisha. The coldness between them seemed to thaw, replaced by a quiet understanding.
+
+“Why didn’t you just tell me?” Tabeenah’s voice softened, her eyes filled with concern. “I could’ve helped you, Jaisha. You shouldn’t have had to go through all of this alone.”
+
+Jaisha’s eyes filled with tears, and she shook her head. “I didn’t want to make it worse. I didn’t know what Qasim was capable of, and I was afraid that if you knew, he’d drag you into it, too. I thought I could handle it, but... I was wrong. I needed you, Tabeenah. I needed my sister, but I was too scared to admit it.”
+
+Tabeenah sighed deeply, her shoulders slumping as the weight of everything seemed to crash down on her. “I’m sorry, Jaisha. I shouldn’t have jumped to conclusions. I was angry, but... I should’ve trusted you.”
+
+Jaisha reached out and squeezed Tabeenah’s hand, the bond between them feeling stronger than it had in weeks. “We’ll figure this out together. I’m not hiding anything from you anymore. No more secrets.”
+
+Tabeenah nodded, wiping a tear from her eye. “No more secrets.”
+
+For the first time in days, the tension between them dissolved, and the suffocating weight that had been pressing down on Jaisha began to lift. She had her sister back. It wasn’t just her battle anymore. They were in this together.
+
+But just as a sense of relief began to settle in, Jaisha’s phone buzzed again.
+
+She and Tabeenah both froze, their eyes darting toward the screen. Jaisha’s hand trembled as she picked up the phone, her heart racing. The message was from the same private number—the one she now knew belonged to Qasim.
+
+She read it aloud, her voice shaky. “You thought you were smart, didn’t you? I’m not done with you yet.”
+
+Tabeenah’s eyes widened. “He’s still sending you messages?”
+
+Jaisha nodded, her stomach twisting in knots. “He knows we’re on to him.”
+
+Tabeenah’s face hardened. “He’s not going to get away with this, Jaisha. We’ll stop him.”
+
+Jaisha stared at the message, fear and anger swirling in her chest. She was tired of feeling helpless, tired of being scared. Now that she knew who her tormentor was, she wasn’t going to let him control her anymore.
+
+She was going to confront Qasim—one way or another.
+
+As she turned to Tabeenah, her voice was filled with determination. “I’m going to find him, Tabeenah. I’m going to end this.”
+
+Tabeenah squeezed her shoulder, her eyes blazing with the same resolve. “And I’m coming with you.”
