@@ -1242,3 +1242,785 @@ She was going to confront Qasim—one way or another.
 As she turned to Tabeenah, her voice was filled with determination. “I’m going to find him, Tabeenah. I’m going to end this.”
 
 Tabeenah squeezed her shoulder, her eyes blazing with the same resolve. “And I’m coming with you.”
+
+The morning sun filtered weakly through the blinds of Jaisha’s classroom, casting long, jagged shadows on the walls. Jaisha sat at her desk, staring blankly at the whiteboard, her thoughts elsewhere. Her stomach twisted with anxiety as she replayed everything from the night before in her head—Qasim’s message, the revelation of his identity, the mounting tension. She had thought that uncovering his identity would bring her some relief, but instead, it had only made everything worse.
+
+Her eyes scanned the rows of desks in front of her, searching. She knew Qasim was here. He had been in her class every day, hiding in plain sight, pretending to be just another student. How had she never noticed him?
+
+Tabeenah, seated next to her, shot her a glance. They hadn’t spoken much that morning, both too on edge to have a real conversation. But Jaisha could feel the silent support from her sister, the unspoken promise that whatever happened next, they would face it together.
+
+As the professor droned on, Jaisha’s phone buzzed softly in her bag. She glanced down discreetly and felt her heart skip a beat.
+
+Another message from the private number.
+
+"You really thought you could figure me out? Don’t be so naïve, Jaisha."
+
+Her breath caught in her throat as she stared at the screen. He knew. Qasim knew that she had found out, and now, the game had changed.
+
+Her eyes flicked toward the back of the classroom, where Qasim usually sat. The seat was empty.
+
+Her pulse quickened. He wasn’t here. Not today.
+
+Or was he hiding? Was he watching her from somewhere else?
+
+Jaisha tried to focus on the lecture, but her mind raced with possibilities. What if Qasim was planning something? What if he had more control over her life than she realized? A sinking feeling formed in the pit of her stomach. She could feel him closing in on her, like a predator stalking its prey.
+
+The day passed in a blur. She hardly registered the conversations around her, her thoughts consumed by fear. She needed a plan—something to protect herself, but she couldn’t shake the growing dread that things were already spiraling beyond her control.
+
+Later that afternoon, Jaisha and Tabeenah returned to the hostel. The walk back had been eerily quiet, with both of them lost in their thoughts, casting glances over their shoulders as if Qasim might be following them.
+
+The moment they entered their room, Jaisha collapsed onto her bed, her nerves frayed. She couldn’t keep living like this, waiting for the next message, the next move from Qasim. She needed to confront him, to end this nightmare once and for all. But how?
+
+Her phone buzzed again, and she almost didn’t want to look.
+
+It was another message from the same private number.
+
+"You think I’m done with you? I’m just getting started."
+
+Her blood ran cold. She could almost hear his voice behind the words, mocking her, threatening her. He wasn’t going to stop. He was going to keep tormenting her, keep pushing until she broke.
+
+Tabeenah, noticing the change in Jaisha’s expression, came over to sit beside her. “What is it? Did he send another one?”
+
+Jaisha nodded silently and handed the phone to her sister. Tabeenah’s face hardened as she read the message.
+
+“He’s trying to scare you,” Tabeenah said quietly, her jaw clenched. “But we can’t let him win.”
+
+Jaisha buried her face in her hands, feeling the weight of everything crashing down on her. “I don’t know what to do, Tabeenah. I don’t know how to stop him.”
+
+Tabeenah placed a comforting hand on her back. “We’ll find a way. We’ll figure this out.”
+
+But Jaisha wasn’t so sure. The more she thought about it, the more hopeless it felt. Qasim was hiding in the shadows, always one step ahead, and she didn’t know how to pull him into the light.
+
+Suddenly, a thought struck her.
+
+“What if he’s watching us?” Jaisha whispered, her voice trembling. “What if he’s been following us this whole time?”
+
+Tabeenah frowned, her eyes narrowing. “What do you mean?”
+
+“I mean... what if he knows more than we think? What if he’s not just sending these messages to scare me, but to track everything I do? What if he’s waiting for the perfect moment to...”
+
+Her words trailed off, the full weight of her realization settling in.
+
+The messages. The timing of them. How Qasim seemed to know exactly what she was doing, where she was.
+
+“He’s always one step ahead,” Jaisha whispered, her voice barely audible. “He knows too much. More than he should.”
+
+Tabeenah’s face paled as the gravity of Jaisha’s words sank in. “Are you saying... Qasim could be spying on us?”
+
+Jaisha didn’t respond. She didn’t have to. The look in her eyes said it all.
+
+Just then, there was a knock at the door. Both sisters froze, their eyes snapping to the entrance of their room. The knock came again, louder this time.
+
+Jaisha’s heart pounded in her chest. Her mind raced. What if it was Qasim? What if he had followed them here, waiting outside their door, ready to confront her face to face?
+
+Tabeenah stood, her body tense as she moved cautiously toward the door. She placed her hand on the knob, hesitated for a brief moment, then slowly opened it.
+
+It was the hostel warden.
+
+“There’s a package for Jaisha,” she said, holding out a small box.
+
+Jaisha stared at the package, her blood running cold. She hadn’t ordered anything. Who would send her a package?
+
+The warden placed it on the table and left without another word.
+
+Jaisha approached the box cautiously, her hands trembling as she picked it up. It was small and plain, with no return address. Her gut told her not to open it, but curiosity—and fear—got the better of her.
+
+With Tabeenah watching silently, Jaisha peeled back the tape and opened the box.
+
+Inside was a single slip of paper.
+
+She unfolded it slowly, her heart pounding in her ears.
+
+The note was handwritten in a neat, looping script.
+
+“I’m closer than you think.”
+
+Jaisha’s hands shook, the paper falling from her fingers. Her breath came in short, ragged gasps as panic clawed at her chest. Qasim wasn’t just watching her. He was taunting her. He was right there, lurking in the shadows, waiting for her next move.
+
+She looked at Tabeenah, her eyes wide with terror. “He’s here. He’s watching us.”
+
+Before Tabeenah could respond, Jaisha’s phone buzzed again.
+
+Another message.
+
+This time, the words chilled her to the bone.
+
+“See you soon.”
+
+Jaisha’s mind raced, her heart pounding so loud she could barely think. She had no idea how she was going to stop Qasim, but one thing was certain—things were spiraling out of control.
+
+And she didn’t know how much longer she could hold on.
+
+Just then, her phone rang, shattering the silence. She glanced at the screen, expecting another message from the private number.
+
+But instead, it was an unknown caller.
+
+With trembling hands, Jaisha answered, her voice barely above a whisper.
+
+“Hello?”
+
+A familiar voice crackled through the line, steady and calm.
+
+“Jaisha, it’s Arham. I think I know how to help you.”
+
+Jaisha’s breath caught in her throat.
+
+Jaisha sat cross-legged on her bed, still reeling from the unsettling events of the past few days. The hostel room was quiet, with Tabeenah lounging on her own bed, flicking through her phone. The tension between them had lessened, but the air still felt heavy with unspoken words. Jaisha kept glancing at her own phone, half expecting another message from the private number that had made her life a living nightmare.
+
+Suddenly, her phone lit up and began vibrating on the bedside table. Jaisha’s heart leaped into her throat as she snatched it up, her eyes widening at the sight of a Dubai number. Her immediate thought was her husband, but something felt off. He usually sent texts and never called at random times.
+
+With a quick glance at Tabeenah, who was watching her with mild interest, Jaisha hesitated.
+
+“Who is it?” Tabeenah asked, curiosity creeping into her voice.
+
+“I… I don’t know,” Jaisha replied, her voice shaky. Taking a deep breath, she answered the call, her voice soft. “Hello?”
+
+There was a brief pause on the other end before a familiar, warm voice filtered through the line.
+
+“Jaisha… it’s me.”
+
+Jaisha froze. That voice—it was unmistakable. It wasn’t her husband.
+
+“Arham?” Her tone softened immediately, a mix of surprise and disbelief coloring her words. “What… why are you calling?”
+
+On the other side of the room, Tabeenah rolled her eyes dramatically, mouthing "Seriously?" as she listened in.
+
+“I didn’t mean to surprise you,” Arham said, his voice impossibly gentle, the kind of tone that felt oddly intimate as if they were sharing a secret. “But I wanted to hear your voice. It’s been a while, hasn’t it?”
+
+Jaisha’s heart skipped a beat. She hadn’t expected this. She hadn’t expected to hear from Arham at all. “It has,” she replied, her voice barely above a whisper. “You… you didn’t have to call.”
+
+Tabeenah, sitting across from her, groaned audibly and muttered under her breath, “Oh my God, this is so cringe.”
+
+Jaisha shot her a warning glance but couldn’t help the flush that crept up her neck. The conversation with Arham was already making her feel exposed, as though someone had peeled away the layers she had carefully wrapped around herself.
+
+Arham chuckled softly on the other end, oblivious to the tension in the room. “I know. But I wanted to check on you. I’ve been thinking about you lately. About the time we spent together under that tree… the sketches you used to make.”
+
+Jaisha’s lips curved into a small, nostalgic smile despite herself. “Those were… simpler times,” she said, the weight of her current situation pressing down on her once again.
+
+“Yes, they were,” Arham agreed, his tone wistful. “But I don’t think things have to be so complicated. We can still find moments of peace, you know? Like we used to.”
+
+The softness in his voice was almost too much. Jaisha found herself twirling the hem of her blanket, her mind drifting back to those days. But just as quickly, she snapped back to the present.
+
+“I don’t know if that’s possible anymore, Arham,” she said, her voice more serious now. “Things have changed.”
+
+Tabeenah, who had been feigning disinterest while scrolling through her phone, couldn’t contain herself any longer. She sat up straight, crossing her arms over her chest and gave Jaisha an exasperated look. “Can you two stop? This is straight out of some cheesy romance novel.”
+
+Jaisha stifled a laugh, her cheeks burning as she mouthed, “Stop it!” back at Tabeenah.
+
+Arham’s voice, however, remained gentle. “You sound like you’re carrying the weight of the world, Jaisha. I can hear it in your voice. What’s going on?”
+
+For a moment, Jaisha hesitated, but the sincerity in Arham’s tone was disarming. The question hung in the air between them, and she could feel her walls beginning to crack. She glanced at Tabeenah, who had now turned her attention back to her phone, giving Jaisha some semblance of privacy.
+
+“I... I didn’t know who else to talk to,” Jaisha began, her voice barely audible. “I’m in trouble, Arham. It’s been going on for a while now.”
+
+There was a pause on the other end of the line, and when Arham spoke again, his voice was laced with concern. “What do you mean? What kind of trouble?”
+
+Jaisha swallowed hard, her hand trembling as she held the phone closer to her ear. “I’ve been getting these messages. From a private number. It’s someone from my class, but not under the name they’re using. The things they’ve been saying… the threats… it’s been terrifying, Arham. And I think I know who it is now.”
+
+Arham’s voice tightened. “What kind of threats, Jaisha?”
+
+“The kind that could ruin everything if people find out,” she whispered, her voice breaking slightly. “He’s been pretending to be someone else. At first, I thought it was harmless—just some stupid messages. But then it got personal. He started talking about my family, about my marriage, and… and he’s been watching me.”
+
+“Who is it?” Arham’s tone was sharper now, protective, almost angry.
+
+“I tracked down the number. It’s from someone named Qasim in my class,” she confessed, her words tumbling out faster now. “He’s been hiding behind a fake name, pretending to be someone else. And the worst part is… I don’t know why he’s doing this to me.”
+
+Arham was silent for a moment, and Jaisha could hear his breathing on the other end. When he finally spoke, his voice was calm but resolute. “Jaisha, listen to me. You’re not alone in this. We’ll figure it out. But you have to be careful. Don’t confront him yet.”
+
+Jaisha nodded, even though Arham couldn’t see her. “I don’t know what to do. He’s in my class, and I’ve seen him looking at me. He knows I’m onto him, I can feel it.”
+
+“Does anyone else know?” Arham asked.
+
+“Tabeenah knows,” Jaisha said, glancing at her sister, who had momentarily stopped scrolling on her phone, now casting curious glances her way. “But I haven’t told anyone else. Not even my husband.”
+
+“Good,” Arham said. “Keep it that way for now. I’ll make some calls and see what I can do. But Jaisha, please promise me you won’t confront him on your own. You don’t know what he’s capable of.”
+
+“I won’t,” Jaisha whispered, feeling a flicker of relief in Arham’s reassurance.
+
+Tabeenah raised an eyebrow at her sister, now visibly intrigued by the conversation. Jaisha mouthed, “Later,” to her, but it was clear that Tabeenah wasn’t going to drop this.
+
+“Arham,” Jaisha finally said, her voice growing steadier, “thank you. I didn’t know who else to talk to, and I—”
+
+“Don’t thank me yet,” Arham cut her off, his voice soft but firm. “Just stay safe. We’ll handle this.”
+
+Jaisha nodded again, feeling her pulse slow down slightly. “Okay. I’ll wait to hear from you.”
+
+As she ended the call, the room fell into silence once more. Tabeenah stared at Jaisha for a long moment before raising an eyebrow. “So... you’re telling me that guy Qasim is the one sending you those creepy messages? And you’ve been sitting here acting like everything’s fine?”
+
+Jaisha pressed her lips together, nodding.
+
+Tabeenah stood up, shaking her head. “This is way worse than I thought, Jaisha.”
+
+“I know,” Jaisha admitted, her voice barely above a whisper. "But I can't let him win."
+
+The next morning, Jaisha woke up with a heaviness in her chest. She had barely slept, her mind replaying the conversation with Arham over and over again. Despite the relief of confiding in him, the looming threat of Qasim’s next move made it impossible for her to fully relax.
+
+As she got ready for her lecture, she felt Tabeenah’s eyes on her. Her sister had been uncharacteristically quiet after their conversation last night. The silence was thick, almost suffocating, and Jaisha knew that Tabeenah was holding back from saying something.
+
+Finally, as they both sat at the edge of their beds, Tabeenah broke the silence.
+
+“Jaisha, you’ve got to do something. You can’t just sit there waiting for him to make the next move,” she said, her voice a mix of worry and frustration. “I know Arham said not to confront him, but… this is dangerous. You can’t just let him keep doing this.”
+
+Jaisha sighed, her hands trembling slightly as she buttoned her shirt. “I know. But I don’t know what to do. Arham is right. If I confront him without proof, it could backfire.”
+
+“But you can’t live like this,” Tabeenah insisted. “Looking over your shoulder every second, wondering when he’ll strike next.”
+
+Before Jaisha could respond, her phone buzzed again. She glanced at it, heart racing, fearing it might be another message from Qasim. But it wasn’t.
+
+It was Arham.
+
+Tabeenah noticed the sudden change in her sister’s expression and smirked. “What now? Another one of your cringeworthy conversations with Mr. Dubai?”
+
+Jaisha shot her a look, but the tension broke just for a second as a tiny smile tugged at her lips. Tabeenah’s ability to inject humor into even the darkest situations was oddly comforting.
+
+“Hello?” Jaisha answered the phone, her voice cautious.
+
+“Jaisha, it’s me again,” Arham’s voice was steady, but there was a sense of urgency in his tone. “I’ve been thinking about what you told me last night, and I made some calls.”
+
+Jaisha’s heart skipped a beat. “And?”
+
+“I found something out. But it’s strange,” Arham paused for a moment, as though choosing his words carefully. “Qasim… he’s not just some random student. I don’t want to alarm you, but there’s more to him than we thought.”
+
+Jaisha sat up straighter, her skin tingling with apprehension. “What do you mean?”
+
+Arham hesitated before continuing. “I asked around discreetly. He has a history. It’s not public, and most people don’t know, but apparently, Qasim has done something like this before. Harassment, stalking… the works.”
+
+Jaisha’s stomach churned. She felt like she was sinking deeper into quicksand. “What happened to the person he did it to before?”
+
+“That’s the thing,” Arham replied. “The girl he was stalking dropped out of university, and no one’s heard from her since. There were rumors that she was scared into silence.”
+
+A cold wave of fear washed over Jaisha. Qasim wasn’t just some guy with a twisted sense of humor—he was dangerous.
+
+“So what do we do now?” Jaisha asked, her voice barely a whisper.
+
+“We need to gather proof,” Arham said firmly. “Concrete proof. Not just the messages, but enough to take to the authorities if necessary. Do you still have access to the messages he sent you?”
+
+“I do,” Jaisha confirmed, glancing at her phone. “But he’s been careful. He doesn’t leave much of a trail. The private number, the cryptic messages… it’s like he knows how to stay hidden.”
+
+“That’s where I come in,” Arham said, his tone shifting slightly. “I have a friend, someone who can help us trace the number back to its source. But it’ll take a bit of time.”
+
+Jaisha exhaled, feeling both relieved and anxious. “I don’t have much time, Arham. He knows I’m onto him. I can feel it.”
+
+Arham’s voice softened. “I know, Jaisha. Just hang in there. We’ll figure this out. You’re not alone in this.”
+
+Jaisha nodded, despite the tightening in her chest. “Thank you, Arham. Really.”
+
+Before they could say more, a knock on the door interrupted the conversation. Jaisha’s pulse quickened. Tabeenah jumped up, visibly startled by the sudden sound.
+
+“Who could that be?” Tabeenah whispered, her voice barely audible as she moved toward the door.
+
+Jaisha motioned for her to wait, her heart thudding in her chest. She clutched her phone tightly, still connected to Arham. “Hold on, Arham. Someone’s at the door.”
+
+Tabeenah hesitated, then slowly opened it just a crack. Standing on the other side was one of their classmates, Noor, looking nervous and glancing around as if she didn’t want to be seen.
+
+“Tabeenah? Jaisha?” Noor’s voice trembled slightly. “Can I talk to you both? It’s important.”
+
+Jaisha exchanged a look with her sister, confusion and suspicion etched across her face. “What’s going on, Noor?” she asked, stepping closer to the door.
+
+Noor bit her lip, her eyes darting nervously to the side. “It’s about Qasim. There’s something you need to know.”
+
+A chill ran down Jaisha’s spine as she motioned for Noor to come in. Tabeenah stepped aside, allowing Noor to enter. She closed the door behind her, and Noor’s anxious gaze flickered between the two sisters.
+
+“What is it, Noor?” Jaisha asked, her voice tense.
+
+Noor took a deep breath, her fingers trembling as she wrung her hands together. “I think… I think he’s planning something. I overheard him talking on the phone this morning, and he mentioned your name, Jaisha. He sounded angry. Really angry.”
+
+Jaisha’s blood ran cold. “What did he say?”
+
+“He didn’t say much,” Noor admitted, her voice barely above a whisper. “But he was pacing, and he said something like, ‘I won’t let her ruin everything.’ And then he mentioned… tonight.”
+
+“Tonight?” Jaisha repeated, her voice rising slightly in panic. “What does that mean?”
+
+“I don’t know,” Noor said, her eyes wide with fear. “But whatever it is, Jaisha, I think he’s planning to do something to you.”
+
+Jaisha’s phone, still connected to Arham, suddenly crackled as his voice broke through the tension in the room. “Jaisha, did you hear that? You need to leave. Now.”
+
+Jaisha stared at her phone in shock, feeling the walls close in around her. Tabeenah stepped forward, placing a hand on her shoulder. “Jaisha, we have to get out of here.”
+
+“I know,” Jaisha whispered, her mind racing as fear clutched at her chest. "But where do we go? What do we do?"
+
+“I’m coming to you,” Arham’s voice said through the phone, his tone urgent.
+
+Jaisha’s heart skipped, confusion creeping into her fear. “Arham, you’re in Dubai… what do you mean?”
+
+There was a brief pause on the other end before Arham sighed. “You’re right, I can’t be there physically. But Jaisha, I’m not going to leave you to deal with this alone. I’ll guide you through this, okay? You need to stay calm and think clearly.”
+
+Jaisha swallowed hard, nodding as though Arham could see her. “Okay. What do I do?”
+
+“For now, don’t leave the room, and don’t open the door unless you’re sure it’s safe. Call someone you trust at the university to come over or go to a secure place like a staff office. I’ll keep looking into Qasim from here, but you need to stay safe until we have a plan.”
+
+Jaisha clutched the phone tightly, her voice barely above a whisper. “Okay, I’ll do that. But hurry, Arham. I have a bad feeling about tonight.”
+
+Jaisha hung up the phone, her pulse racing despite Arham’s steady reassurance. The hostel room suddenly felt too small, too suffocating. She stared at the door, as if expecting it to burst open any second, her imagination running wild. Tabeenah was still sitting on her bed, but now her face reflected a quiet concern that hadn’t been there before.
+
+“You okay?” Tabeenah asked, her voice breaking the silence.
+
+Jaisha nodded, but her mind was somewhere else—calculating, worrying. “I don’t know, Tabeenah. I feel like things are spinning out of control.”
+
+“They are,” Tabeenah said bluntly, standing up and walking over to sit beside her sister. “But you’re not alone in this. We’ll figure something out.”
+
+Jaisha exhaled, grateful for Tabeenah’s presence, but the gnawing unease in her chest refused to let go. “Arham thinks I should stay put for now. He’s looking into Qasim. But I can’t just sit here and do nothing.”
+
+Tabeenah frowned, tapping her fingers against her knee. “Stay put? So, what’s the plan—wait for this guy to make a move? What if he comes here?”
+
+The thought sent a chill down Jaisha’s spine. She glanced toward the door again, her paranoia growing with every passing second. “I don’t know. But Arham said I should stay safe. He’s going to dig into Qasim’s background, but—”
+
+Before she could finish her sentence, there was a sudden noise in the hallway outside. The sharp, metallic clang of something falling echoed through the walls, followed by hurried footsteps. Both Jaisha and Tabeenah froze.
+
+“What was that?” Jaisha whispered, her breath catching in her throat.
+
+Tabeenah stood up slowly, moving toward the door with caution. She peered through the peephole, her body tensing. After a moment, she turned back to Jaisha, her face pale. “There’s someone out there. They’re just standing at the end of the corridor.”
+
+Jaisha’s heart began to race again. She grabbed her phone, her hands shaking as she sent a quick message to Arham. There’s someone outside the room.
+
+Seconds later, her phone buzzed with his reply: Lock the door. Don’t open it until you’re sure it’s safe.
+
+Jaisha leaped up and quickly turned the lock on the door, the sound of the bolt sliding into place offering her only a small sense of security. Tabeenah stood beside her, her expression a mixture of fear and determination.
+
+“We need to call someone,” Jaisha said, her voice barely above a whisper. “Maybe the hostel security.”
+
+Tabeenah shook her head. “I don’t trust the security here. They’re so careless; half of them don’t even show up for their shifts.”
+
+The footsteps outside grew louder again, this time slower, almost deliberate, as if whoever was out there wanted them to hear. Jaisha’s breath hitched, and she exchanged a terrified look with Tabeenah.
+
+“I’ll go check,” Tabeenah offered, her voice low but firm.
+
+“No!” Jaisha grabbed her arm. “It’s too dangerous.”
+
+Tabeenah gave her a tight smile. “I’ll be quick. If it’s someone harmless, we’ll know. But if it’s him…” She trailed off, not needing to finish her sentence.
+
+Jaisha’s mind raced, but before she could protest again, Tabeenah was already at the door, unlocking it quietly and peeking through the small crack she’d opened.
+
+She gasped, quickly shutting it again and locking it tight.
+
+“Who was it?” Jaisha’s voice was shaky.
+
+Tabeenah’s face was pale as she backed away from the door, her eyes wide with fear. “It’s Qasim. He’s out there, Jaisha. Just standing there like he’s waiting for something.”
+
+Jaisha felt the floor drop out from under her. Her worst fear had just been confirmed. Qasim knew she was onto him, and now he was here—outside their room, watching, waiting. She stumbled back toward her bed, her legs trembling as she collapsed onto it, clutching her phone.
+
+Her hands moved in a blur as she sent another message to Arham: Qasim is outside the door. He knows. What do I do?
+
+The reply came almost instantly. Stay calm. Don’t confront him. Call someone you trust at the university. I’ll make sure you get help.
+
+Jaisha stared at her phone, her mind swirling with panic. What if he tried to break in? What if he did something now before they could get help? She couldn’t just sit there and wait for someone to save her.
+
+“What did Arham say?” Tabeenah asked, her voice edged with panic now.
+
+Jaisha shook her head, her throat dry. “We’re supposed to stay calm. But how can we? He’s right outside.”
+
+Tabeenah paced back and forth, her nerves clearly on edge. “This is crazy. We can’t just sit here. We need to find a way out of this.”
+
+The doorknob rattled suddenly, the sound sending both of them into a state of frozen terror. Jaisha’s breath caught in her throat, her mind racing with a million thoughts at once.
+
+But then, just as suddenly as it had started, the rattling stopped. Silence filled the air once more, but the tension was palpable, suffocating.
+
+After what felt like an eternity, Tabeenah peered through the peephole again, her body stiff with fear.
+
+“He’s gone,” she whispered, but her voice trembled with uncertainty. “At least, for now.”
+
+Jaisha’s phone buzzed once more, and another message from Arham lit up the screen: Stay where you are. Help is on the way. I’m getting you out of there.
+
+But despite Arham’s reassurance, the fear gnawing at Jaisha refused to subside. Qasim knew. He knew they were onto him. And now, the game has changed.
+
+The hostel room was still, save for the tense breathing of both Jaisha and Tabeenah. It felt like the entire building had gone silent in the wake of Qasim’s brief but terrifying appearance. Every creak, every gust of wind against the window, felt like a prelude to something worse.
+
+Jaisha sat on the edge of her bed, her eyes glued to the door. The fact that Qasim had been standing there, mere feet away, sent icy tendrils of fear wrapping around her heart. She could still hear the soft rattle of the doorknob in her mind, the terrifying reality of his presence too much to bear.
+
+Tabeenah was pacing again, her nerves clearly shot. “We can’t just stay here, Jaisha,” she said, her voice trembling but laced with determination. “He could come back. We need to leave before he does.”
+
+Jaisha stared at her, her voice barely a whisper. “And go where? We don’t even know if it’s safe outside. What if he’s waiting for us in the hallway?”
+
+Tabeenah stopped pacing and locked eyes with Jaisha. “Then we make sure it’s safe first. I’m not sitting here waiting for that creep to come knocking again.”
+
+Jaisha nodded, though the fear was gnawing at her insides. But Tabeenah was right—sitting in that room, waiting for Qasim to make his next move, wasn’t an option. They had to do something.
+
+Her phone buzzed again in her hand, another message from Arham: The university security is on their way. Don’t panic. I’ve spoken to a few people here too, we’re making arrangements.
+
+Jaisha read the message out loud, hoping it would ease some of the tension in the room. But Tabeenah wasn’t impressed. “Arrangements?” she echoed sarcastically. “What does that even mean? We don’t need ‘arrangements,’ we need to get out of here.”
+
+Suddenly, the faintest sound echoed from the hallway—footsteps again. Slow, deliberate.
+
+Both girls froze, their eyes locking on the door. Jaisha’s heart pounded wildly in her chest, her grip tightening around her phone. Was it Qasim again? Had he returned?
+
+The footsteps grew louder, heavier, stopping right outside their door.
+
+Jaisha felt every muscle in her body tense. She glanced at Tabeenah, whose face was now pale with fear. The moment stretched into eternity as they waited, holding their breath, for whatever would come next.
+
+Then, a soft knock.
+
+Tabeenah’s eyes widened. “No way,” she mouthed, stepping back from the door as if it were about to explode open.
+
+Jaisha stared at the door, her body frozen in place. She didn’t dare move, her mind racing with a thousand possibilities. What if it was Qasim, trying to lure them out? What if he’d decided to escalate his game?
+
+Her phone buzzed again—another message from Arham: Security should be there by now. Don’t open the door unless you’re sure.
+
+The knock came again, this time louder, more insistent.
+
+Tabeenah’s face twisted with indecision. “What do we do?”
+
+Jaisha’s mind was a swirl of fear and confusion, but she knew one thing—they couldn’t risk opening the door without knowing who was on the other side. She stood up, motioning for Tabeenah to be quiet as she crept toward the door.
+
+Carefully, she peered through the peephole.
+
+Her breath caught in her throat.
+
+Two men in security uniforms stood on the other side, their faces serious. Jaisha let out a shaky sigh of relief but didn’t fully relax. She wasn’t sure she could trust anyone at that moment.
+
+“It’s the security,” she whispered to Tabeenah, stepping back from the door. “But... what if Qasim sent them? What if he’s manipulating them somehow?”
+
+Tabeenah bit her lip, her eyes darting toward the door. “We can’t just stay in here forever. We have to make a move. Let’s talk to them through the door first.”
+
+Jaisha nodded, her nerves still on edge. She approached the door cautiously, her voice wavering as she called out. “Who’s there?”
+
+“It’s university security, ma’am,” one of the men said, his tone professional. “We were informed of a possible threat in this area. We’ve been sent to escort you both to a safer location.”
+
+Jaisha exchanged a glance with Tabeenah, who shrugged, still unsure. She leaned closer to the door, pressing her ear against the wood. “How do I know you’re really with security?” she asked, trying to keep her voice steady.
+
+There was a brief pause before the man replied. “We can show you our badges, ma’am. You don’t need to open the door fully, just enough to see. We’re here for your safety.”
+
+Jaisha hesitated, her hand hovering over the lock. She glanced at Tabeenah, who nodded. “Just a crack,” Tabeenah whispered. “Be careful.”
+
+With trembling fingers, Jaisha slowly unlocked the door, opening it just a sliver. The two security men stood there, and one of them quickly held up his ID card. Jaisha squinted, reading the name and the official seal on the badge.
+
+Relief washed over her as she recognized the university’s logo.
+
+“We’ve been informed of the situation,” the guard said, his voice calm. “There’s been a report of suspicious activity in this building. Please, let us escort you out.”
+
+Jaisha pulled the door open a little wider, her tension easing ever so slightly. Tabeenah grabbed her bag from the bed, her movements hurried and nervous.
+
+As they prepared to leave the room, Jaisha couldn’t shake the feeling of eyes on her, the sensation of being watched from somewhere in the shadows. She glanced back one last time, her stomach twisting with unease.
+
+The security guards led them down the dimly lit corridor, their footsteps echoing in the stillness. The walls felt like they were closing in, and Jaisha’s heart raced with every step they took.
+
+Tabeenah stayed close, her eyes darting nervously around. “Do you think we’re really safe?” she whispered to Jaisha as they descended the staircase.
+
+“I don’t know,” Jaisha whispered back. “But we don’t have a choice.”
+
+They reached the ground floor, the cool night air seeping in through the entrance. As they stepped outside, Jaisha’s phone buzzed once again. She glanced down at it, expecting another message from Arham.
+
+But it wasn’t Arham.
+
+It was a private number.
+
+Her blood turned to ice as she read the message on her screen.
+
+You can run, Jaisha. But you can’t hide.
+
+Her breath caught, her fingers shaking violently as she showed the message to Tabeenah.
+
+Jaisha's fingers trembled as she stared at the message, the ominous words etched into her mind: You can run, Jaisha. But you can’t hide. The hostel's cold night air wrapped around her, but the chill running through her veins had nothing to do with the weather.
+
+Tabeenah read the message, her eyes widening in horror. “What the hell? He knows we’re leaving… Jaisha, we need to go now. Get as far away from here as possible.”
+
+The two security guards, oblivious to the terror that had just seized the girls, turned to face them. “We’re taking you to the campus office,” one of them said, his voice steady. “You’ll be safe there. No one can get to you.”
+
+But Jaisha wasn’t sure anymore. She glanced around, feeling as if Qasim’s eyes were on her even now. It was a gut-wrenching sensation, the idea that no matter how many steps she took, no matter how far she went, he was always lurking nearby, watching, waiting. The guards led them toward a van parked just outside the building, its headlights cutting through the darkness.
+
+“We’ll take you to a secure location,” the second guard assured them, unlocking the van’s door. Tabeenah climbed in first, looking over her shoulder at Jaisha, urging her to follow.
+
+Jaisha hesitated, feeling the weight of the decision pressing down on her. Everything inside her screamed that this wasn’t over. She felt like she was walking straight into a trap—one set by someone who was always three steps ahead. But she had no other option. Qasim had found her in the hostel; staying put wasn’t safe anymore.
+
+As Jaisha stepped into the van, her phone buzzed again. Another message. The same private number. She felt sick as she unlocked her screen and read it:
+
+Trust no one, Jaisha. Even those closest to you.
+
+Her stomach churned. The warning sent a surge of panic through her, and she immediately glanced at the guards, doubt creeping in. Were they truly who they claimed to be? Her fingers hovered over her phone. Arham had told her to be cautious. She thought back to his words: Don't confront him, and don't make any moves unless you're sure.
+
+Tabeenah noticed her hesitation. “What now?” she asked, her voice on edge.
+
+Jaisha showed her the message, and Tabeenah’s face drained of color. “You think he could’ve sent those guards?” she whispered, fear lacing every word.
+
+Jaisha swallowed hard, her heart pounding against her chest. “I don’t know… but I don’t want to take any risks.”
+
+The guards were waiting outside the van, their eyes following the girls closely as they muttered between themselves. Their expressions gave nothing away—calm, professional. But now that the seed of doubt had been planted, Jaisha couldn’t ignore it. She didn’t know who to trust anymore.
+
+She leaned closer to Tabeenah, lowering her voice. “We can’t stay here. We need to make a run for it.”
+
+Tabeenah blinked in disbelief. “Run? Are you insane? Where will we go?”
+
+Jaisha glanced around the empty campus grounds. In the dead of night, the wide-open spaces offered little in terms of cover, but staying with these men—if Qasim had somehow infiltrated the university security—felt even more dangerous. The thought of being driven off somewhere, with no escape, chilled her to the bone.
+
+She took a deep breath, and her decision was made. “We run. Now.”
+
+Before Tabeenah could protest further, Jaisha flung open the door and bolted into the night. Tabeenah, despite her initial hesitation, followed right behind her. The guards shouted after them, their heavy footsteps echoing across the campus as they gave chase.
+
+Jaisha’s breath came in sharp gasps, her legs burning as she sprinted toward the main road, her eyes scanning desperately for any sign of safety. Behind her, Tabeenah’s footsteps matched hers, their fear pushing them forward. She didn’t dare look back, not even as she heard the guards gaining ground.
+
+“Jaisha, over here!” Tabeenah yelled, grabbing her arm and pulling her toward a narrow alley between two academic buildings. They dove behind a stack of crates, their hearts pounding so loudly Jaisha was sure the guards could hear them.
+
+The footsteps passed, growing fainter as the guards ran further down the path. Jaisha slumped against the wall, gasping for breath. Tabeenah clutched her side, wheezing but alive.
+
+“We can’t keep running like this,” Tabeenah whispered, her eyes wide with terror. “He’s everywhere, Jaisha. How does he know where we are? How does he know everything?”
+
+Jaisha didn’t have an answer. Her mind was racing with a thousand questions, all of them leading back to the same terrifying thought: Qasim had outsmarted her at every turn. He had been one step ahead since the beginning, and now it felt like he had them exactly where he wanted.
+
+Her phone buzzed again, the sound like a dagger slicing through the silence. She hesitated before looking, terrified of what she might find this time.
+
+The message was brief but chilling:
+
+You can’t hide, Jaisha. I’m closer than you think.
+
+Jaisha’s hands shook as she lowered the phone, her breath coming in shallow gasps. Tabeenah peered over her shoulder, her face turning even paler than before. “How is this happening? How does he know?”
+
+“We have to get to Arham,” Jaisha muttered, her mind spinning as she tried to piece together a plan. “He said he’d help. He knows people who can track Qasim, who can stop this.”
+
+Tabeenah gave her a skeptical look. “Arham’s in Dubai. How’s he going to stop this from a thousand miles away?”
+
+“He can,” Jaisha said with more conviction than she felt. “He has contacts—people who can trace the messages, who can help us figure out who Qasim’s working with.”
+
+Tabeenah sighed heavily, glancing around the darkened alley. “Fine. But we can’t stay out here much longer. If Qasim’s watching us… we need to get to somewhere safe.”
+
+Jaisha nodded, her heart pounding in her chest. “The library,” she said, her voice shaking. “It’s always open, and it’s close. We can hide there until we figure out our next move.”
+
+With one last look around, Jaisha and Tabeenah darted out from their hiding spot, sticking to the shadows as they made their way across campus toward the library. Every creak, every rustle of wind made Jaisha’s skin crawl, the sense of being watched gnawing at her relentlessly.
+
+As they reached the entrance of the library, Jaisha’s phone buzzed once more. She hesitated, her hand trembling as she unlocked it.
+
+The message was a single line, and it stopped her cold:
+
+I’m already inside.
+
+Jaisha froze, her breath catching in her throat. Her worst fear had just come true.
+
+Jaisha's hands were still trembling as she and Tabeenah slipped inside the dimly lit library. The heavy door creaked shut behind them, the sound echoing through the vast, silent hall. Every shadow seemed alive, every creak a threat. Tabeenah grabbed Jaisha’s arm, her fingers digging in, but Jaisha was too numb to feel the pain.
+
+They found a corner behind the towering bookshelves and crouched down, hearts racing. Jaisha’s phone buzzed again, but she ignored it. She couldn’t bear to read another one of Qasim’s messages.
+
+Then her phone rang.
+
+The sudden sound made both girls jump. Jaisha glanced at the screen, her heart pounding as she saw the familiar Dubai number. It was Arham.
+
+She quickly answered, her voice trembling. “Arham?”
+
+“Jaisha,” Arham’s voice came through, breathless and urgent. “I just got off the phone with the campus security. They told me you ran away from the guards. Why? What happened?”
+
+Jaisha swallowed hard, her voice shaky. “Arham… I don’t know who to trust. We got a message, and I—I thought Qasim might have gotten to them.”
+
+“Jaisha, listen to me.” Arham’s tone was sharp, cutting through her fear. “That’s exactly what he wanted. He’s playing mind games. He wanted you outside, away from safety.”
+
+Tabeenah looked at Jaisha, her eyes wide, trying to piece together the conversation. Jaisha covered the phone’s speaker and whispered, “Arham says Qasim tricked us. He wanted us to run.”
+
+Tabeenah’s face paled, and she shook her head in disbelief. “This is worse than I thought.”
+
+Jaisha turned back to the phone. “What should we do?” Her voice was barely a whisper.
+
+“I’m trying to help, but you need to be careful,” Arham said, his voice tense. “Don’t trust anyone except for me. Qasim is dangerous, and he’s way more connected than we thought. He might have someone working with him inside the university.”
+
+Jaisha’s pulse quickened. “Working with him? How is that even possible?”
+
+“I don’t know yet,” Arham replied. “But there’s more going on than we realized. He’s not just some guy harassing you, Jaisha. He’s been planning this for a long time.”
+
+Just as Jaisha opened her mouth to respond, the call cut off. The screen went blank.
+
+“Arham?” she said, her voice rising in panic. “Arham!”
+
+Tabeenah’s eyes widened as Jaisha frantically checked her phone. “What happened?”
+
+“I don’t know… the call just dropped,” Jaisha muttered, pressing the call button again. But nothing happened. The phone stayed dead, and the signal was lost.
+
+Suddenly, her phone buzzed once more. A text message popped up on the screen, and Jaisha’s blood ran cold.
+
+Do you think Arham can help you?
+
+Her fingers trembled as she read the words over and over. Tabeenah peered over her shoulder, her breath catching. “No… no way.”
+
+Jaisha’s heart thudded painfully in her chest. Qasim had cut the call. He was listening. Watching. Controlling her phone.
+
+“How… how is he doing this?” Jaisha whispered, her voice shaking. Her stomach churned as a realization hit her. Sara’s sister had told them earlier that the messages were coming from Qasim’s number, but they had never imagined he had this much control.
+
+“He’s hacked your phone,” Tabeenah said, her voice barely above a whisper. “He’s been in it this whole time. That’s how he knows everything.”
+
+Jaisha’s mind raced, her thoughts spiraling out of control. All those private conversations. Every message, every call—Qasim had seen and heard it all. The walls felt like they were closing in, the library’s silence now suffocating.
+
+Another message appeared on the screen:
+
+Run all you want. I’ll always find you.
+
+Jaisha stared at the phone, her fingers trembling. She felt utterly trapped. Even the one person she thought could help—Arham—was cut off and unreachable because of Qasim’s grasp.
+
+“We need to get out of here,” Tabeenah urged, panic rising in her voice. “This place isn’t safe. He’s got control over everything.”
+
+Jaisha nodded numbly, her thoughts scrambled. Where could they go? How could they escape from someone who seemed to know every move they made?
+
+Before she could answer, the phone buzzed once more. But this time, it wasn’t a message. It was a call—again, from the private number.
+
+Tabeenah’s eyes widened in horror as Jaisha stared at the screen, her mind racing.
+
+“Don’t answer it,” Tabeenah whispered urgently, grabbing Jaisha’s arm. “Don’t let him get in your head.”
+
+But Jaisha couldn’t move. Her thumb hovered over the screen, her heart pounding in her chest. It was as if the call itself had paralyzed her as if Qasim’s presence had somehow invaded her very mind.
+
+The phone continued to ring, the sound echoing through the library, each ring louder and more threatening than the last.
+
+Tabeenah shook her. “Jaisha, come on. We need to leave, now!”
+
+But Jaisha couldn’t shake the fear that if she didn’t answer, something worse might happen. What if ignoring him only made him angrier? What if not answering this call was the very mistake that would push Qasim over the edge?
+
+The phone stopped ringing, but almost instantly, another message appeared:
+
+Answer the phone, or I’ll come find you myself.
+
+Jaisha’s breath caught in her throat. There was no escape, no way out of this nightmare. Her hand, trembling uncontrollably, reached for the phone once again. But before she could respond, she heard footsteps—soft but deliberate—echoing from somewhere inside the library.
+
+Tabeenah’s head snapped toward the sound, her face going pale. “Someone’s here.”
+
+Jaisha’s body froze as the footsteps grew louder.
+
+Jaisha’s body went rigid, her breath catching in her throat as the sound of footsteps echoed through the library. The once-safe haven of the towering shelves now felt like a labyrinth of dread. Every shadow seemed to stretch menacingly, every corner a possible hiding place for Qasim. Tabeenah was the first to react, her fingers tightening around Jaisha’s arm, pulling her deeper into the rows of books.
+
+“Jaisha,” she whispered sharply, her voice barely audible over the pounding of their hearts. “We need to move. Now.”
+
+Jaisha nodded, her legs feeling as if they were filled with lead, but she managed to follow Tabeenah deeper into the library. The footsteps seemed to grow closer, more deliberate. Whoever was in the library wasn’t in a hurry—they knew Jaisha and Tabeenah were trapped.
+
+They darted down another aisle, past rows of dusty encyclopedias until they reached a reading nook near the back of the library. It was dark, and the lamps turned off, offering them a small space to hide.
+
+“Do you think it’s him?” Tabeenah asked, her voice shaking.
+
+“It has to be,” Jaisha replied, her mind racing. She pulled out her phone again, but the signal was still dead. Arham was unreachable, and Qasim’s control over her phone meant there was no way to call for help. She stared at the device, helpless.
+
+Suddenly, the footsteps stopped.
+
+The silence was deafening, oppressive. Jaisha strained to hear, to sense any movement, but the stillness only made her anxiety spike higher. Her eyes darted to Tabeenah, whose face had turned ghostly pale in the darkness.
+
+“We can’t stay here,” Jaisha whispered. “He’s trying to corner us.”
+
+Tabeenah nodded, though her expression betrayed her fear. “But where can we go? He could be anywhere.”
+
+Jaisha’s heart pounded as her mind scrambled for options. The library had only one entrance, and the footsteps had come from that direction. There was no way out unless they confronted him or made a break for it. But then another thought hit her—a terrifying one.
+
+“He’s controlling my phone,” Jaisha murmured. “He can see where we are. He’s tracking us.”
+
+Tabeenah’s eyes widened in horror. “Then we need to get rid of it. Now.”
+
+Without hesitating, Jaisha powered off her phone, her hands trembling as she shoved it into her pocket. It wouldn’t stop Qasim from knowing they were in the library, but at least it would cut off his direct link to them.
+
+The silence in the library pressed in on them, thick and unbearable. Just as Jaisha was about to suggest they try for the exit, another noise broke the tension.
+
+A faint beeping sound. Coming from behind the shelves.
+
+Jaisha froze, her eyes locking with Tabeenah’s in a shared moment of realization.
+
+“He’s here,” Tabeenah whispered, her voice barely audible.
+
+The beeping was coming closer, a slow and calculated sound, like a countdown ticking away the final moments of their escape. Jaisha’s pulse quickened as she pulled Tabeenah to her feet, their eyes frantically searching for another way out.
+
+Then, a voice cut through the darkness. Smooth, chillingly calm.
+
+“Running won’t help you, Jaisha.”
+
+It was Qasim. The voice they had feared for so long was no longer just in her messages. It was here, real, and terrifying.
+
+Jaisha’s blood ran cold as she pulled Tabeenah closer, her heart thudding painfully in her chest. The sound of his voice seemed to echo in the tight spaces between the shelves, making it impossible to pinpoint where he was.
+
+“You think you can hide from me?” Qasim’s voice taunted. “I’ve been watching you for months. I know everything about you—every secret, every fear. You’re only making this harder on yourself.”
+
+Jaisha’s hands trembled, her breathing shallow as she glanced at Tabeenah. “We can’t stay here.”
+
+Tabeenah nodded, her fear giving way to determination. “Then let’s go. We’ll make a run for it.”
+
+Together, they edged out of the reading nook, careful to stay low and hidden between the shelves. The beeping sound had stopped, but the sense of danger lingered. Jaisha’s mind raced with thoughts of what Qasim could do, what he might be planning. She knew he wasn’t just there to scare them anymore—this was the final move in his twisted game.
+
+As they reached the end of the aisle, Jaisha peeked around the corner. The entrance to the library was visible, dimly lit by the outside lamps. They were only a few feet away from the door. If they could make it there without being seen, they had a chance.
+
+But just as they started to move, a shadow shifted near the entrance. Qasim stepped into view, his face masked in the half-light, but his presence unmistakable. He was blocking their only way out.
+
+“You think you’ve outsmarted me, Jaisha?” His voice was laced with dark amusement. “You’ve been so predictable this whole time. Running, hiding, thinking someone else can save you. But it’s just you and me now.”
+
+Jaisha’s breath hitched, her mind racing. This wasn’t just a confrontation—it was a trap. He had lured them here, waiting for the perfect moment to strike.
+
+Tabeenah grabbed her arm. “We need to distract him. Maybe if we split up—”
+
+Before she could finish, Qasim’s voice rang out again, this time closer. “You think splitting up will help? I’ve always been two steps ahead.”
+
+Jaisha’s heart pounded in her chest, her mind spinning as she realized how deeply Qasim had manipulated everything. He had been waiting for this moment, orchestrating every move, and now he had them exactly where he wanted.
+
+Just then, her phone vibrated again, even though it was off. Jaisha’s blood froze as she looked down, confused and terrified.
+
+Come outside. Now. Or things will get worse.
+
+Another message from Qasim.
+
+Her phone had never really been off.
+
+Panic surged through her as she gripped Tabeenah’s hand. “We can’t stay here.”
+
+Tabeenah’s eyes were wide with fear, but she nodded. “What do we do?”
+
+Jaisha swallowed, her mind flashing back to Arham’s warning. “Don’t confront him yet.”
+
+But they were out of time.
+
+Jaisha’s heart raced as the library seemed to close in around them. Qasim’s presence was no longer just a sinister idea, a faceless threat behind a private number—he was here, in the flesh, and this was the moment she had feared for weeks.
+
+She glanced at Tabeenah, whose wide eyes mirrored her own terror. They were trapped, with Qasim standing between them and the exit. His voice, calm and menacing, echoed in the dimly lit room.
+
+“You think you’ve been clever, Jaisha, but you’ve only been following the path I set for you,” Qasim said, stepping closer, his shadow growing larger against the wall. “This could’ve been easier, but you just had to involve others.”
+
+Tabeenah squeezed Jaisha’s hand, her voice barely a whisper. “We can’t just wait for him to make the next move.”
+
+Jaisha’s thoughts raced. They had to do something—anything to disrupt his plan. She reached for her phone, but her hands trembled as she realized it wasn’t just a device anymore. Qasim had been controlling it all along, monitoring her every move. But perhaps it could be a tool to buy them time.
+
+Suddenly, Jaisha had an idea. It was risky, and it might not work, but it was their only chance.
+
+“I know what you want,” Jaisha called out, her voice steady despite the fear gripping her. She stepped away from Tabeenah, moving toward the edge of the bookshelves. “You’ve been watching me, manipulating me for weeks. But I get it now—you wanted my attention. You wanted me to know it was you.”
+
+Qasim paused, his steps halting. He cocked his head, intrigued by her sudden change in tone. “Go on.”
+
+“You want control,” Jaisha continued, carefully stepping forward, keeping her eyes locked on Qasim. “You’ve had it this whole time. But now that I know who you are, you don’t have to hide anymore. I’m standing right here. It’s just you and me now, Qasim. No one else.”
+
+Tabeenah gasped, but Jaisha didn’t waver. She had to keep Qasim focused on her. She had to give Tabeenah a chance to escape or get help.
+
+“I’ve never been hiding,” Qasim replied, his voice dark with amusement. “I’ve been waiting for you to understand that. And now… you do.”
+
+Jaisha could feel the weight of his gaze, the predatory way he watched her. But she pressed on, hoping to keep him talking. “If it’s just about control, then you’ve already won. You’ve manipulated me. You’ve followed my every step. But what now? What’s next, Qasim? What’s your endgame?”
+
+Qasim’s smile widened, his eyes narrowing. “You don’t get it, Jaisha. This was never just about control. It’s about you realizing how powerless you are. I’ve been behind the scenes, pulling the strings, and you’ve been dancing to my tune. But now that you know… now that you’re finally paying attention… I want to see how far you’ll go to stop me.”
+
+Jaisha’s pulse quickened. This wasn’t just about power. Qasim wanted to break her, to force her into a desperate move. But she wasn’t going to give him the satisfaction.
+
+She took another step closer, meeting his gaze with newfound resolve. “I won’t play your game anymore, Qasim. This ends tonight.”
+
+For a split second, something flickered in Qasim’s eyes—an emotion she couldn’t quite place. Was it doubt? Hesitation? Whatever it was, it gave her just enough time.
+
+Suddenly, from behind a bookshelf, Tabeenah dashed toward the exit, her footsteps loud against the floor. Qasim’s head snapped toward the sound, but Jaisha was already moving. She lunged forward, grabbing the nearest heavy book from a shelf and hurling it in his direction. It wasn’t meant to hit him—it was just to distract him.
+
+Qasim flinched, startled by the unexpected attack, and in that moment of confusion, Jaisha ran.
+
+She didn’t think, didn’t look back. Her legs moved on instinct, her breath coming in short gasps as she sprinted toward the library door where Tabeenah had already disappeared. The adrenaline coursing through her veins drowned out everything but the sound of her own heartbeat.
+
+“Jaisha!” Qasim’s voice rang out behind her, sharp and filled with anger now. “You can’t run from this!”
+
+But she didn’t stop.
+
+Bursting through the library doors, Jaisha skidded to a halt in the empty hallway. The moonlight filtered through the windows, casting long shadows on the floor, but the space was eerily quiet. Tabeenah was nowhere to be seen.
+
+Jaisha’s phone buzzed in her pocket. A message.
+
+You think you’ve won? This isn’t over, Jaisha.
+
+She gritted her teeth, her breath still coming in ragged gasps. Qasim might have been tracking her every move, but he hadn’t counted on one thing: she wasn’t alone anymore. Tabeenah, Arham, her husband—they all knew. And now, she wasn’t going to face him alone.
+
+Suddenly, footsteps echoed down the corridor. Jaisha’s heart leaped into her throat as she whirled around.
+
+But it wasn’t Qasim.
+
+It was Arham, he came here straight from Dubai for Jaisha, out of breath, with a look of pure determination on his face. “Jaisha! Are you okay?” he asked, rushing toward her.
+
+Relief washed over her. She nodded, her knees buckling as the adrenaline finally wore off. “I—he’s still inside.”
+
+Arham’s expression darkened. “The guards are coming. We’ll get him.”
+
+Jaisha leaned against the wall, her body trembling from the fear and exhaustion of the night. But she had made it. She had broken free from Qasim’s grip.
+
+The distant sound of sirens began to fill the air, and Jaisha closed her eyes, letting the weight of everything settle over her. It was over. The nightmare was finally over.
+
+Arham placed a hand on her shoulder, steady and reassuring. “You did it, Jaisha. You stayed strong.”
+
+Jaisha opened her eyes, meeting his gaze. “I didn’t do it alone.”
+
+As the sirens grew closer and the night slowly began to give way to the dawn, Jaisha knew one thing for sure: Qasim had lost. His control over her was broken. And even though the scars of his manipulation would linger, she had reclaimed her power. This chapter of her life was over.
+
+But as she stood there, breathing in the cool night air, Jaisha also knew that she was stronger now. She had faced the darkness and come out the other side.
+
+And for the first time in weeks, she felt free.
