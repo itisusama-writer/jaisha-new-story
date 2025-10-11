@@ -1,0 +1,7 @@
+- A short, time-stamped clip of him sleeping that could plausibly be old, sent at 3:17 a.m. with “Shh.” Followed by silence for a day.
+- A cheap toy identical to Bilal’s left at her door, scuffed the same way. Could be a store-bought dupe; she won’t know.
+- Tabeenah: a text to Jaisha that references what her sister is wearing right now. The watcher is closer than tech—maybe the next corridor, maybe the courtyard.
+- Academic sabotage: her presentation “glitches” to flash a personal photo before returning to normal. No one else can reproduce it. Was it real?
+- Sending a courier to the hostel at midnight with a parcel in Tabeenah’s name.
+- The jacaranda motif: petals arranged in a shape she used in her sketch, found in a place she didn’t leave them. A charcoal fingerprint in the corner of a page she hasn’t touched.
+- Vanishing evidence: everything disappears—texts, footprints, glitches. People can’t help her if they can’t see it.
